@@ -9,3 +9,5 @@
 🗡️utilaza esse estpaço para minha organização e compartilhamento dos meus projetos desenvolvidos 
 
 ### voce pode entrar em contato comigo 🐈 issacdaniel770@gmail.com 
+
+https://media1.tenor.com/m/BWQxV7PZuwMAAAAC/bubu-dudu-bubu-dudu-love.gif
